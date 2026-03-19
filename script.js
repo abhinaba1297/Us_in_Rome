@@ -61,7 +61,7 @@ Not even the ceilings.
 I'll just appreciate how absolutely beautiful you are, 
 while you appreciate everything else babe.
 
-I'd just walking beside you slowly,
+I'd just walk beside you slowly,
 hearing your voice of excitement,
 and sharing every little reaction with you.`
   },
