@@ -9,7 +9,7 @@ But I didn’t want you to experience Rome alone.
 
 So I made something for you...
 
-Let’s go through your journey together ✨`,
+Let’s go through your journey together ✨ (Maybe grab your tissue kkkkkk)`,
     intro: true
   },
   {
